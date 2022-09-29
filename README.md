@@ -10,3 +10,8 @@ My favorite ice cream
 
 - Cookies and Cream
 - Vanilla
+
+Stevie's favorite ice cream flavoer 
+- Meal worm
+- Shrimp flakes
+- Sunflower seeds
